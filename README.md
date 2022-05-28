@@ -1,6 +1,6 @@
 - Hi, I’m Carson (@Stonec823)
 
-- Using this profile to diplay personal data projects 
+- Using this profile to display personal data projects 
 
 - Currently seeking full-time data role and/or freelance data analysis projects 
 
